@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on projects that explore the intersection of food, technology, and art, especially those that challenge conventional boundaries.
 - 📫 How to reach me: LinkedIn - [linkedin.com/in/gabrielpellegriniatx/](https://www.linkedin.com/in/gabrielpellegriniatx/) | Email - gabriel@pellegrini.us
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I’ve managed multiple restaurants and transitioned into tech, blending my culinary expertise with software engineering to create immersive, tech-driven dining experiences.
+- ⚡ Fun fact: I’ve owned multiple restaurants and transitioned into tech, blending my culinary expertise with software engineering to create immersive, tech-driven dining experiences.
